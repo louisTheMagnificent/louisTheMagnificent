@@ -9,4 +9,5 @@
 - 📺 LinkedIn：[Louis](https://www.linkedin.com/in/yi-l-b872b1340)
 - 💼 For job opportunities, please feel free to contact me.
 - 🤝 I welcome the opportunity to share academic and professional experiences.
+- 📧 Email: louisliu330@gmail.com
 - 👍 Together, we will achieve our happiness.
